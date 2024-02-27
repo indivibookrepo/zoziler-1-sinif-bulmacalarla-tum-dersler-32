@@ -1,0 +1,1 @@
+# zoziler-1-sinif-bulmacalarla-tum-dersler-32
